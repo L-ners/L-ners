@@ -21,7 +21,7 @@ Always looking for new challenges and opportunities to grow as a professional.
 - 📫 How to reach me **leonardo.berrios42@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
-www.linkedin.com/in/leonardo-j-berrios-hernandez-515162157
+www.linkedin.com/in/leonardo-j-berrios-hernandez
 <p align="left">
 </p>
 
